@@ -1,2 +1,2 @@
 # hello-world
-for practicing 
+This is my new account for Github, wish me good luck!
